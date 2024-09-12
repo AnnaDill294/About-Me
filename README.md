@@ -11,16 +11,16 @@ I am from Ebensburg, PA. I live with my parents and two of my three brothers. I 
 * Traveling
 * Camping
 * Hiking
-* Running (occasionally- VERY rarely... )
+* Running (now and then, not often)
 * Swimming (leisurely, of course)
 * Partaking in shitty DIY crafts but never finishing them
 * Walking my dog, Daisy
 
 # Fun Facts
-* I am an aunt (my nephew is so cute!)
+* I am an aunt and Godmother (my nephew is so cute!)
 * I earned my black belt in Tang Soo Do Karate
 * My favorite season is fall
 * I used to have a pet parakeet named Tinkerbell
 * I currently have a dog named Daisy
-* I am a Polish-American citizen; my mother and her side of the family are from Poland
+* I'm a Polish-American citizen; my mother and her side of the family are from Poland
 * I played rugby at Juniata College my freshman year
