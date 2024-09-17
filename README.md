@@ -1,7 +1,7 @@
 # Anna Dill
 
 # [PerchPerfect](https://unsplash.com/photos/a-couple-of-birds-sitting-on-top-of-a-tree-branch-r2dOieBZt6c)
-  # _"Helping You Keep Your Feathered Friends Happy and Healthy!"_
+  _"Helping You Keep Your Feathered Friends Happy and Healthy!"_
 
 # Personal Statement: 
 When I was a kid, I had a pet parakeet named [Tinkerbell](https://t3.ftcdn.net/jpg/08/49/26/80/360_F_849268054_rYtzxkbxvcr6y3F0kz3VskMIJxWVAQN1.jpg). Inspired by that experience, I created this website to help parakeet owners design the perfect habitat for our feathered friends!
