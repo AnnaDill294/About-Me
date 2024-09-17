@@ -20,10 +20,11 @@ I am from Ebensburg, PA. I live with my parents and two of my three brothers. I 
 * I am an aunt and Godmother (my nephew is so cute!)
 * I earned my black belt in Tang Soo Do Karate
 * My favorite season is fall
-* I used to have a pet parakeet named Tinkerbell
+* I used to have a pet parakeet named Tinkerbell [Tinkerbell](https://www.istockphoto.com/photo/blue-budgie-gm615985266-107029537)
 * I have a dog named Daisy
 * I'm a Polish-American citizen; my mother and her side of the family are all from Poland
 * I played rugby at Juniata College my freshman year
+
 
 # What are some of Anna's goals/dreams?
 * Learning how to speak Polish
