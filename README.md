@@ -1,6 +1,4 @@
-body {background-color: coral;}
-# AnnaDill294.github.io
-About Me - IT105 Project
+# About Me - IT105 Project
 
 # Who is Anna Dill?
 I am from Ebensburg, PA. I live with my parents and two of my three brothers. I was born in Germany; I moved to the US with my mom when I was a baby. I am now 22 years old attending Juniata College. My POE is biochemistry and I am trying to go to medical school- although I'm not sure what kind of doctor I want to be. I'm involved in JC Rotaract Club and JC Health Professions Orgnization (HPO). I love hanging out with my friends and being outside. I'm also a grandma when it comes to technology, so I'm really excited to be learning how to make a website!
